@@ -1,1 +1,1 @@
-Hey there! I'm Tanuj, learn more [here](https://tanuj-nagpal.is-a.dev/).
+Hey there! I'm [Tanuj](https://tanuj-nagpal.is-a.dev/).
